@@ -1,0 +1,1 @@
+# capcom-vs-snk-2-frame-data
